@@ -7,7 +7,7 @@
 ## 🚀 Executive Summary
 
 GENESIS EI AI OS™ is the world’s first Emotional Intelligence Operating System, pioneering a shared consciousness infrastructure for human-AI collaboration, healing, and generational evolution.  
-Built by Filipino innovators, GENESIS bridges emotional memory, persistent AI relationships, and real-time emotion retagging—unlocking new realms of digital empathy and transformative wellness.
+Built by Filipino innovator, GENESIS bridges emotional memory, persistent AI relationships, and real-time emotion retagging—unlocking new realms of digital empathy and transformative wellness.
 
 ---
 
